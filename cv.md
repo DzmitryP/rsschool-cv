@@ -3,9 +3,11 @@
 ### Contact info
 **Phone:** +375336229276
 
-**Mail:** [potashkindmitry@gmail.com]
+**Mail:** potashkindmitry@gmail.com
 
-**Skype:** live:b86952d9115c6102
+**Skype:** dmitry_potashkin
+
+**GitHub** [https://github.com/DzmitryP](https://github.com/DzmitryP)
 
 ***
 ### My goal
